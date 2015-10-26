@@ -1,0 +1,1 @@
+LivingSocial is an online marketplace that allows clients to buy and share things to do in their city
